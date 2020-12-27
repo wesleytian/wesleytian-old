@@ -1,1 +1,1 @@
-# [Click here!](https://wesleytian.com)
+# [wesleytian.com](https://wesleytian.com)
